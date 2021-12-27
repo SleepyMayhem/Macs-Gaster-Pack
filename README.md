@@ -6,4 +6,4 @@ Please Sub To [Gaster Sounds](https://steamcommunity.com/sharedfiles/filedetails
 You Will Hear Music If Subbed To That.
 You May Alter And Change And Upload New Gasters. 
 Have Fun And Enjoy!!!
-![This is an image](https://imgur.com/MnKfB55)
+![This is an image](https://i.imgur.com/MnKfB55.png)
